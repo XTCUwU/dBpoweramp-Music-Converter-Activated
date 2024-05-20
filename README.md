@@ -1,2 +1,2 @@
-# dBpoweramp-Music-Converter-Activated
-dBpoweramp Music Converter Activated
+# dBpoweramp Music Converter Activated
+Just install and Enjoy ;)
